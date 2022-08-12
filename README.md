@@ -2,7 +2,7 @@
 - 👀 I’m interested in cars, NFL, disign Foto and in interesting thing of our life)
 - 🌱 I’m currently learning CS50 course
 - 💞️ I’m looking to collaborate on some workplace with started level knowledge 
-- 📫 How to reach me Ooo..... gust send me maseg on my telegram @BorisRingoff
+- 📫 How to reach me Ooo..... just send me maseg on my telegram @BorisRingoff
 -
 
 <!---
